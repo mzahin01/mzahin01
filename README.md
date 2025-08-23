@@ -10,4 +10,4 @@ Currently trying to make my own startup **NerdBro** as a co-founder.
 
 Nothing more to share atm. Will update this if something interesting happens, insha'Allah.
 
-[Click here to check my CV here](https://tinyurl.com/mzahin01Canva)  
+[CV here 😗](https://tinyurl.com/mzahin01Canva)  
