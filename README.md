@@ -1,9 +1,13 @@
-## As-Salamu Alaikum
+## As-Salamu Alaikum  
 
-It's **Zahin**; jack of a few trades, master of none.
+It's **Zahin**; jack of a few trades, master of none.  
 
-A lazy Flutter developer with basic knowledge of interactive animations using Rive.
+A lazy Flutter developer with basic knowledge of interactive animations using Rive.  
 
-Nothing more to share at the moment. I will update this if something interesting happens, insha'Allah.
+I started [**DespicableApps**](https://despicableapp.com/), where I drop fun, satirical, sometimes questionable projects.
 
-Check out my CV here -> https://tinyurl.com/mzahin01Canva
+Currently trying to make my own startup **NerdBro** as a co-founder.  
+
+Nothing more to share atm. Will update this if something interesting happens, insha'Allah.
+
+[Click here to check my CV here](https://tinyurl.com/mzahin01Canva)  
